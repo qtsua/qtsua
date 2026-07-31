@@ -1,3 +1,18 @@
 <img width="820" height="232" alt="224054150195263677" src="https://github.com/user-attachments/assets/8c30d41f-7591-425f-a043-474bc2f3e981" />
-⊹
-ᴅɴɪ: 20+ & ᴜɴᴅᴇʀ 13 {ɪ'ᴍ 16.}
+
+⊹　❤︎　　　　　　　　　˚₊‧꒰ა 𝒜𝓃𝑔ℯ𝓁 ໒꒱ ‧₊˚
+
+ᴅʀᴀᴡ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ !! ʀᴇᴘʟɪᴇꜱ ᴏɴ ᴛᴡᴛ
+
+⤷ 
+
+── 
+
+ɪ'ᴍ ꜱᴜᴀ, ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʙʏ ᴡʜᴀᴛᴇᴠᴇʀ ᴄʜᴀʀᴀᴄᴛᴇʀ ɪ'ᴍ ᴄᴏꜱᴘʟᴀʏɪɴɢ ‹𝟹
+
+ɪ ᴍɪɢʜᴛ ꜱᴇᴇᴍ ᴅʀʏ/ꜱʜʏ ᴀᴛ ꜰɪʀꜱᴛ ʙᴜᴛ ɪ ᴘʀᴏᴍɪꜱᴇ ɪ ᴏɴʟʏ ꜱᴇᴇᴍ ᴛʜᴀᴛ ᴡᴀʏ (ᵕ— ᴗ —)
+
+<img width="245" height="150" alt="946459677953251735" src="https://github.com/user-attachments/assets/71cb50a3-000f-40cf-8261-7e728d82716f" />
+<img width="245" height="150" alt="𓏲 ๋࣭ ࣪ ˖" src="https://github.com/user-attachments/assets/fd65855a-06ea-4d83-ad42-bc1e3a82fe83" />
+<img width="245" height="150" alt="♰ _ " src="https://github.com/user-attachments/assets/bf5741ca-f228-4361-b6d7-f2bdfa3e3333" />
+
