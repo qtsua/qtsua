@@ -1,1 +1,1 @@
-<img width="800" height="191" alt="mizi   sua header - alnst (THE SILLIES THE LITTLE…" src="https://github.com/user-attachments/assets/b28ef324-b9f8-4bfe-86e4-9fdf09593348" />
+<img width="820" height="232" alt="224054150195263677" src="https://github.com/user-attachments/assets/8c30d41f-7591-425f-a043-474bc2f3e981" />
