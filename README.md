@@ -4,7 +4,7 @@
 
 ﹒ᴅʀᴀᴡ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ !! ʟᴀᴛᴇ ʀᴇᴘʟɪᴇꜱ (ᴏɴ ᴛᴡᴛ)
 
-⤷ https://qtsua.straw.page
+⠀⠀⤷ ⠀⠀⠀https://qtsua.straw.page
 
 ── 
 
