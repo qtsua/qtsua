@@ -8,7 +8,7 @@
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.straw.page
 
-﹒ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ !! ᴍꜱɢꜱ ᴀꜰᴛᴇʀ ᴀᴘᴘʀᴏᴠᴀʟ
+﹒ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ !!
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.atabook.org/
 
