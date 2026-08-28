@@ -4,6 +4,8 @@
 
 ⊹　❤︎　　　　　　　　　˚₊‧꒰ა 𝒜𝓃𝑔ℯ𝓁 ໒꒱ ‧₊˚
 
+⠀⠀⤷ ⠀⠀⠀https://guns.lol/qtsua
+
 ﹒ᴅʀᴀᴡ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ !!
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.straw.page
@@ -12,7 +14,6 @@
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.atabook.org/
 
-⠀⠀⤷ ⠀⠀⠀https://guns.lol/qtsua
 
 ⠀── 
 
