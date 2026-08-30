@@ -21,4 +21,4 @@
 
 ⠀
 
-<img width="1200" height="400" alt="IMG_1028" src="https://github.com/user-attachments/assets/b5301163-4cf5-4c46-b611-4e64b122b676" />
+<img width="960" height="540" alt="3D0DB583-FF0A-441E-9AC7-276F2FEB659B" src="https://github.com/user-attachments/assets/03f81723-8a0f-4ea6-a3cc-6db05989f4a1" />
