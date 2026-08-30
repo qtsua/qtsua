@@ -1,25 +1,22 @@
-<img width="745" height="232" alt="224054150195263677" src="https://github.com/user-attachments/assets/8c30d41f-7591-425f-a043-474bc2f3e981" />
 
+
+⠀── 
 ⠀
 
-⊹　❤︎　　　　　　　　　˚₊‧꒰ა 𝒜𝓃𝑔ℯ𝓁 ໒꒱ ‧₊˚
+⊹⠀
 
 ⠀⠀⤷ ⠀⠀⠀https://guns.lol/qtsua
 
-﹒ᴅʀᴀᴡ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ !!
+﹒⊹⠀ᴅʀᴀᴡ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ !!
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.straw.page
 
-﹒ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ !!
+﹒⊹⠀ꜱɪɢɴ ᴍʏ ᴀᴛᴀʙᴏᴏᴋ !!
 
 ⠀⠀⤷ ⠀⠀⠀https://qtsua.atabook.org/
 
 
 ⠀── 
 
-
 ⠀
 
-<img width="240" height="150" alt="946459677953251735" src="https://github.com/user-attachments/assets/71cb50a3-000f-40cf-8261-7e728d82716f" />
-<img width="240" height="150" alt="𓏲 ๋࣭ ࣪ ˖" src="https://github.com/user-attachments/assets/fd65855a-06ea-4d83-ad42-bc1e3a82fe83" />
-<img width="240" height="150" alt="♰ _ " src="https://github.com/user-attachments/assets/bf5741ca-f228-4361-b6d7-f2bdfa3e3333" />
