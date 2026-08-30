@@ -20,5 +20,4 @@
 ⠀── 
 
 ⠀
-
-<img width="960" height="540" alt="3D0DB583-FF0A-441E-9AC7-276F2FEB659B" src="https://github.com/user-attachments/assets/03f81723-8a0f-4ea6-a3cc-6db05989f4a1" />
+<img width="1000" height="680" alt="02526AE2-54D7-434D-82DC-8EB09724B17C" src="https://github.com/user-attachments/assets/3b117634-4e40-4b12-bcc7-f82b90ff7c42" />
