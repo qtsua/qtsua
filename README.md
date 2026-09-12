@@ -1,5 +1,5 @@
 ⠀
-⤷ ⠀⠀⠀https://guns.lol/qtsua
+
 
 ⠀
 ⤷ ⠀⠀⠀https://qtsua.straw.page
